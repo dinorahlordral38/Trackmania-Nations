@@ -224,4 +224,4 @@ TrackMania Nations is a complete free version, offering all features and updates
 Download TrackMania Nations today and join the race! Experience the thrill of competitive racing with players worldwide. Don't miss out on the fun!
 
 ---
-**Last updated:** 2026-09-18 15:33:54 UTC
+**Last updated:** 2026-09-18 18:42:28 UTC
